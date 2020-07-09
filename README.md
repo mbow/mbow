@@ -1,4 +1,4 @@
-### Hi there 👋
+### ⚡ Fun fact Pringles aren't actually made from 🥔's
 
 <!--
 **mbow/mbow** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
